@@ -9,6 +9,6 @@ Showcase your best self—whether that means a fresh-from-the-groomer glamour sh
 ## Where do I listmy favorite treats?
 
 Open the Hawt Dawg app and click on "Edig Profile."
-Scroll down to the section called "Passions" and tell potential  mates and friends all about the treats and  toys that make 
+Scroll down to the section called "Passions" and tell potential mates and friends all about the treats and  toys that make 
 you tail wag.
 When you're done, click "Save Changes" to show the world.
